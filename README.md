@@ -1,1 +1,1 @@
-Ice hockey is played on a rectangular ice rink with goals at each end, and teams compete to score goals by shooting the puck into the opposing team's net.
+Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
