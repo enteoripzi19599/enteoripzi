@@ -1,1 +1,1 @@
-Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
+The Hockey Hall of Fame, located in Toronto, Canada, honors the greatest players, coaches, referees, and builders of the game, preserving their legacies for future generations.
