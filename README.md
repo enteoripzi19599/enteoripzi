@@ -1,1 +1,1 @@
-Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
+Each game consists of three periods, each lasting 20 minutes, with a 15-minute intermission between periods. Overtime periods are played if the score is tied at the end of regulation.
