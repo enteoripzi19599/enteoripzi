@@ -1,1 +1,1 @@
-Each game consists of three periods, each lasting 20 minutes, with a 15-minute intermission between periods. Overtime periods are played if the score is tied at the end of regulation.
+The origins of hockey can be traced back to ancient civilizations, with games resembling modern hockey played on ice and fields as early as 4,000 years ago.
