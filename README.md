@@ -1,1 +1,1 @@
-The butterfly style of goaltending, where goalies drop to the ice and spread their legs to cover the lower portion of the net, is widely used to block shots.
+Hockey players wear protective equipment, including helmets, shoulder pads, elbow pads, gloves, shin guards, and skates, to protect against injuries during play.
