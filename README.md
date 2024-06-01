@@ -1,1 +1,1 @@
-Hockey players wear protective equipment, including helmets, shoulder pads, elbow pads, gloves, shin guards, and skates, to protect against injuries during play.
+Rugby union is the most widely played and recognized form of rugby, with the Rugby World Cup being the premier international tournament for the sport, held every four years since 1987.
