@@ -1,1 +1,1 @@
-Wayne Gretzky, known as "The Great One," holds numerous NHL records, including most career goals (894) and most career points (2,857).
+Mike Tyson, known as "Iron Mike," became the youngest heavyweight champion in history at the age of 20 and was known for his ferocious punching power and aggressive fighting style.
