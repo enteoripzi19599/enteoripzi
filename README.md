@@ -1,1 +1,1 @@
-Hockey sticks are typically made of wood, fiberglass, or carbon fiber composite materials, with varying degrees of flexibility and durability.
+The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
