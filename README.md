@@ -1,1 +1,1 @@
-The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
+Ice hockey made its Olympic debut at the 1920 Summer Olympics in Antwerp, Belgium, and has been a regular Olympic sport since the 1924 Winter Olympics.
