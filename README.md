@@ -1,1 +1,1 @@
-New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
+Hockey has a rich cultural heritage and is deeply ingrained in the identities of many communities, especially in Canada, where it is considered the national sport.
