@@ -1,1 +1,1 @@
-Hockey has a rich cultural heritage and is deeply ingrained in the identities of many communities, especially in Canada, where it is considered the national sport.
+Goaltenders, or goalies, are specialized players who defend their team's goal and are equipped with larger pads, gloves, and blockers to stop shots from opposing players.
