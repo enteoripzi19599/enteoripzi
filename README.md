@@ -1,1 +1,1 @@
-Olympic boxing features weight classes for men and women, with competitors wearing protective headgear and using a points-based scoring system to determine winners.
+Modern boxing gloves are padded with foam or horsehair and come in various weights and styles, with heavier gloves providing more protection but also reducing hand speed.
