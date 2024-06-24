@@ -1,1 +1,1 @@
-Ice hockey pucks are made of rubber and weigh approximately six ounces, with a diameter of three inches, and are used to score goals by shooting them into the opposing team's net.
+The Marquess of Queensberry rules, established in 1867, introduced significant changes to boxing, including the use of padded gloves, standardized ring dimensions, and rounds.
