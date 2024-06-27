@@ -1,1 +1,1 @@
-The Marquess of Queensberry rules, established in 1867, introduced significant changes to boxing, including the use of padded gloves, standardized ring dimensions, and rounds.
+Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
