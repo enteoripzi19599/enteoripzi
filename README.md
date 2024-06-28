@@ -1,1 +1,1 @@
-Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
+Rugby football split into two distinct codes in 1895, with the Rugby Football Union (RFU) adopting the "amateur" code, while the Northern Rugby Football Union (later Rugby Football League) formed the "professional" code.
