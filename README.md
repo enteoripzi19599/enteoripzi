@@ -1,1 +1,1 @@
-Rugby football split into two distinct codes in 1895, with the Rugby Football Union (RFU) adopting the "amateur" code, while the Northern Rugby Football Union (later Rugby Football League) formed the "professional" code.
+Boxing has been a part of the Olympic Games since the ancient Olympics in Greece, and has been a regular Olympic sport since the 1904 Summer Olympics in St. Louis, Missouri.
