@@ -1,1 +1,1 @@
-Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
+Olympic boxing features weight classes for men and women, with competitors wearing protective headgear and using a points-based scoring system to determine winners.
