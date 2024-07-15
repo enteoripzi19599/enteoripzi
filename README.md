@@ -1,1 +1,1 @@
-Modern boxing gloves are padded with foam or horsehair and come in various weights and styles, with heavier gloves providing more protection but also reducing hand speed.
+A knockout (KO) occurs when a fighter is knocked down and unable to get up and continue fighting within a specified time frame, usually 10 seconds.
