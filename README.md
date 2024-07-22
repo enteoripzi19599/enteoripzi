@@ -1,1 +1,1 @@
-Common weight classes in professional boxing include heavyweight, light heavyweight, middleweight, welterweight, lightweight, featherweight, and bantamweight.
+Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
