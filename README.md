@@ -1,1 +1,1 @@
-Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
+A knockout (KO) occurs when a fighter is knocked down and unable to get up and continue fighting within a specified time frame, usually 10 seconds.
