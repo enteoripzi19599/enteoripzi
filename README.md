@@ -1,1 +1,1 @@
-A knockout (KO) occurs when a fighter is knocked down and unable to get up and continue fighting within a specified time frame, usually 10 seconds.
+Rugby football split into two distinct codes in 1895, with the Rugby Football Union (RFU) adopting the "amateur" code, while the Northern Rugby Football Union (later Rugby Football League) formed the "professional" code.
