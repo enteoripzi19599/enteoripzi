@@ -1,1 +1,1 @@
-Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
+Hockey has a rich cultural heritage and is deeply ingrained in the identities of many communities, especially in Canada, where it is considered the national sport.
