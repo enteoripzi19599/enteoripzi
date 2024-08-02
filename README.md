@@ -1,1 +1,1 @@
-Body checking, where players use their bodies to block or knock opponents off the puck, is a legal and integral part of ice hockey, especially in North America.
+Sugar Ray Robinson, considered by many as the greatest pound-for-pound boxer of all time, held the world welterweight and middleweight titles multiple times during his career.
